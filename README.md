@@ -1,1 +1,1 @@
-# uzaklrdankaana
+# uzaklardankaana
